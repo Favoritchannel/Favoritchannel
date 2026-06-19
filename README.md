@@ -27,4 +27,4 @@ software, not prototypes.
 
 ### 📫 Reach me
 
-pompeiibeatsrecords@gmail.com
+a.tsubanov@gmail.com
